@@ -1,2 +1,0 @@
-# leo
-i am man 
